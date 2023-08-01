@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nicholasantonis133
+- 👀 I’m interested in finance
+- 🌱 I’m currently learning some basic computer science 
+- 📫 How to reach me www.linkedin.com/in/nicholas-antonis
