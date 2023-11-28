@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nicholasantonis133
-- 👀 I’m interested in finance
+- 👋 Hi, I’m Nicholas Antonis
+- Specialized Degree in Financial and Business Economics
 - 🌱 I’m currently learning some basic computer science 
-- 📫 How to reach me www.linkedin.com/in/nicholas-antonis
+- 📫 How to reach me on www.linkedin.com/in/nicholas-antonis
